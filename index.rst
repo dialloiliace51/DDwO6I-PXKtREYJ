@@ -2,9 +2,9 @@ HOW TO HACK INSTAGRAM ACCOUNT - HOW TO HACK SOMEONES INSTAGRAM{DDWO6I}
 ~~~~~~~~~~~~
 UPDATED: 22-09-2021|{ONLINEUSERS:3091}
 
-`CLICK HERE TO USE Hack. <https://gamecode.site/insta>`__
+`CLICK HERE TO USE Hack. <https://grampassword.com/>`__
 
-`CLICK HERE TO USE Hack. <https://gamecode.site/insta>`__
+`CLICK HERE TO USE Hack. <https://grampassword.com/>`__
 
 
 
